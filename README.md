@@ -6,8 +6,12 @@ People Wiping out Chinese Revisionism, Being Communism for Rising.
 
 民要灭中修，入共保翻身。
 
-————————————————————
+## CONTACT
 
-__CODING FOR REVOLUTION__
+__🐦Twitter|[@MiaoRedRevolu](https://twitter.com/MiaoRedRevolu)__
 
-__为革命编写代码__
+##
+
+___CODING FOR REVOLUTION___
+
+___为革命编写代码___
